@@ -5,7 +5,7 @@
 ## Time to prepare: 30 minutes
 
 ## Ingredients:
-1 pound lean ground beef
+1 pound lean ground beef. For a vegetarian option, you can substitute Impossible or Beyond Meat
 
 1 (32 ounce) jar spaghetti sauce
 
